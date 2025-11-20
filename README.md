@@ -16,7 +16,7 @@ Pablo (@pablo303870)
 
 ## 🔄 Updates
 
-I actively update the script **every weekend**, so be sure to check back frequently for new content, improvements, and exclusive tools.
+We actively update the script **every weekend**, so be sure to check back frequently for new content, improvements, and exclusive tools.
 
 ## 🚀 Why use this Hub?
 
@@ -26,4 +26,4 @@ I actively update the script **every weekend**, so be sure to check back frequen
 
 ## 💬 Stay Connected
 
-If you enjoy using this Hub or have ideas for improvement, feel free to reach out or join the community — I’d love to hear from you! https://discord.gg/8BsxUEj3Rr
+If you enjoy using this Hub or have ideas for improvement, feel free to reach out or join the community — I’d love to hear from you! https://discord.gg/G4EhY6nckz
