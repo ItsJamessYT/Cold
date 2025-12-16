@@ -6,7 +6,7 @@
 | |__| |_| | |___| |_| | |  _  | |_| | |_) |
  \____\___/|_____|____/  |_| |_|\___/|____/ 
 
-Nice try skid, but this script its portected with 3 obf and make it better with Junkie 📍
+Nice try skid, but this script its portected with 3 obf and make it better with Junkie
 Current Version: 1.6
 Hope you enjoy and join the discord .gg/a4meRSuHgX
 
