@@ -7,7 +7,7 @@
  \____\___/|_____|____/  |_| |_|\___/|____/ 
 
 Nice try skid, but this script its protected with 3 obf and make it better with Junkie
-Cold Helper v1.6
+Cold Helper v1.8
 Hope you enjoy and join the discord .gg/a4meRSuHgX
 
 ]]
